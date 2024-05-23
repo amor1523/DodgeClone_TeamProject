@@ -15,7 +15,7 @@ Figma 링크 : https://www.figma.com/file/mCbnZeYcj0rEZiE6Cep46n?%3Fnode-id=0-1&
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/5b462ac2-22fd-434b-84de-7d55506ddfbe)
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/ac9b2c20-ae30-4745-83fa-e0c5bd52da88)
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/bff8430a-7e41-4487-88f7-9745cd003526)
-https://vimeo.com/949114422?share=copy
+[https://vimeo.com/949114422?share=copy](https://youtu.be/oooFX-rTo6Q)
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/b05911f5-6efc-4044-850b-24082b3cdbbc)
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/63178f72-9d0c-4f73-a459-3a45f1a0df72)
 ![image](https://github.com/amor1523/DodgeClone_TeamProject/assets/167174802/80cb6245-bf8b-4fb7-b9a2-1ffa26a5bb71)
